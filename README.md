@@ -2,3 +2,4 @@
 Jack DrabicX
 - Michael Romero was here : o
 - Ja deutsch
+- Deutsch is so fun
